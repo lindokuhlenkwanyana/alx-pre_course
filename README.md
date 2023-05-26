@@ -1,1 +1,1 @@
-my first readme
+lindokuhle nkwanyana
